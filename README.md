@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @nattym247
-- 👀 I’m interested in Gaming. Creating games and am really ingudged into anime. :D
+- 👀 I’m interested in Gaming. Creating games and am really indulged into anime. :D
 - 🌱 I’m currently learning game development at University.
 - 📫 How to reach me Email: nmeressie@gmail
 
